@@ -1,1 +1,1 @@
-![KKona](https://imgur.com/IiHs8u9.png)
+![KKona](https://imgur.com/VUTyjss.png)
